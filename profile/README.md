@@ -8,8 +8,6 @@ Thus, you don’t need to download new drivers for your new Windows. You can eas
 
 ashampoo driver updater crack download
 
-ashampoo driver updater multilingual crack
-
 ashampoo driver updater keygen
 
 ashampoo driver updater full crack
